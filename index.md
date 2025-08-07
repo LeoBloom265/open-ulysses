@@ -19,6 +19,7 @@ ADD YOUR LINK!<br>**
 **🔹 [Free:](https://ko-fi.com/post/Claim-a-Character-I2I81J57ZW)** 1 link per character, 1 location<br>
 **🔹 [Premium:](https://ko-fi.com/Post/How-to-Add-a-Link-T6T21GPKLS)** €5/character, own the word, 3 locations<br>
 
+# Visit Us
 
 **[👉 Main page](https://ko-fi.com/Post/Chapter-I-1-Z8Z11J6H59)<br>
 [👉 Free page](https://ko-fi.com/post/Chapter-I-2-A-R5R01J6NRH)<br>
