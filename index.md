@@ -15,15 +15,15 @@ We’re transforming all 265,222 words of James Joyce’s *Ulysses* into clickab
 ## 🔗 Add Your Link
 
 Want your site to live inside this growing artwork?
-ADD YOUR LINK!
-🔹 Free: 1 link per character, 1 location
-🔹 Premium: €5/character, own the word, 3 locations
-🔹 Help us spread the idea or build tools
+ADD YOUR LINK!<br>
+🔹 Free: 1 link per character, 1 location<br>
+🔹 Premium: €5/character, own the word, 3 locations<br>
+🔹 Help us spread the idea or build tools<br>
 
-[👉 Main page](https://ko-fi.com/Post/Chapter-I-1-Z8Z11J6H59)<br>
-[👉 Free page](https://ko-fi.com/post/Chapter-I-2-A-R5R01J6NRH)
-[👉 About](https://ko-fi.com/post/About-V7V31J9IQ1)
-[👉 Our links](https://linktr.ee/openulysses)
+**[👉 Main page](https://ko-fi.com/Post/Chapter-I-1-Z8Z11J6H59)<br>
+[👉 Free page](https://ko-fi.com/post/Chapter-I-2-A-R5R01J6NRH)<br>
+[👉 About](https://ko-fi.com/post/About-V7V31J9IQ1)<br>
+[👉 Our links](https://linktr.ee/openulysses)<br>**
 
 ---
 
