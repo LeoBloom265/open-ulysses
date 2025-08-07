@@ -20,9 +20,9 @@ ADD YOUR LINK!
 🔹 Premium: €5/character, own the word, 3 locations
 🔹 Help us spread the idea or build tools
 
-[👉 Visit the main page](https://ko-fi.com/Post/Chapter-I-1-Z8Z11J6H59)
-[👉 Visit the free page](https://ko-fi.com/post/Chapter-I-2-A-R5R01J6NRH)
-[👉 About this project](https://ko-fi.com/post/About-V7V31J9IQ1)
+[👉 Main page](https://ko-fi.com/Post/Chapter-I-1-Z8Z11J6H59)
+[👉 Free page](https://ko-fi.com/post/Chapter-I-2-A-R5R01J6NRH)
+[👉 About](https://ko-fi.com/post/About-V7V31J9IQ1)
 [👉 Our links](https://linktr.ee/openulysses)
 
 ---
