@@ -14,10 +14,10 @@ We’re transforming all 265,222 words of James Joyce’s *Ulysses* into clickab
 
 ## 🔗 Add Your Link
 
-Want your site to live inside this growing artwork?
-ADD YOUR LINK!<br>
-🔹 Free: 1 link per character, 1 location<br>
-🔹 Premium: €5/character, own the word, 3 locations<br>
+**Want your site to live inside this growing artwork?<br>
+ADD YOUR LINK!<br>**
+**🔹 Free:** 1 link per character, 1 location<br>
+**🔹 Premium:** €5/character, own the word, 3 locations<br>
 🔹 Help us spread the idea or build tools<br>
 
 **[👉 Main page](https://ko-fi.com/Post/Chapter-I-1-Z8Z11J6H59)<br>
