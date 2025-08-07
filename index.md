@@ -14,8 +14,8 @@ We’re transforming all 265,222 words of James Joyce’s *Ulysses* into clickab
 
 ## 🔗 Add Your Link
 
-**Want your site to live inside this growing artwork?<br>
-ADD YOUR LINK!<br>**
+**Want your site to live inside this growing artwork?<br><br>
+ADD YOUR LINK!<br>**<br>
 **🔹 [Free:](https://ko-fi.com/post/Claim-a-Character-I2I81J57ZW)** 1 link per character, 1 location<br>
 **🔹 [Premium:](https://ko-fi.com/Post/How-to-Add-a-Link-T6T21GPKLS)** €5/character, own the word, 3 locations<br>
 
